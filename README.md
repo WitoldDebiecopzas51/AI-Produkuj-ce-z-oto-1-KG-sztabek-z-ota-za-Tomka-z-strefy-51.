@@ -1,0 +1,1 @@
+# AI-Produkuj-ce-z-oto-1-KG-sztabek-z-ota-za-Tomka-z-strefy-51.
